@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rshittu22
 - 👀 I’m interested in learning how Git works...
-- 🌱 I’m currently learning by watching a youtube video on Git
+- 🌱 I’m currently learning by mainly my husband teaching me.... but also from youtube videos
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me: Don't reach out....yet
 - 😄 Pronouns: She/Her
